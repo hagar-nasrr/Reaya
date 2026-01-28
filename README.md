@@ -7,3 +7,5 @@
 مسؤولية كل عضو :
 
 اسم المحاضر : مهندس محمد قمر
+
+لينك جوجل درايف : https://drive.google.com/drive/folders/1i2qd_9VOo-3hl0E8iGHl2IMFMhswGlQQ?usp=drive_link
